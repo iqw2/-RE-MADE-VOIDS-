@@ -1,6 +1,4 @@
-# -RE-MADE-VOIDS-
-WE ARE IN THE SYSTEM WE READ THE SIGNALS
-⛧ VOID TOOLS — WELCOME TO THE UNDERWORLD ⛧
+# -RE-MADE-VOIDS-⛧ VOID TOOLS — WELCOME TO THE UNDERWORLD ⛧
 
 vergiss diese langweiligen standard tools wir gehen in eine andere richtung
 
@@ -98,3 +96,5 @@ understand the system
 WE ARE IN THE SYSTEM
 WE READ THE SIGNALS
 WE ARE VOID ⛧
+WE ARE IN THE SYSTEM WE READ THE SIGNALS
+
